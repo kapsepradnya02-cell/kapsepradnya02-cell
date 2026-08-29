@@ -5,7 +5,7 @@
 # 💫 About Me:
 
 👋 Hi, I'm Pradnya  
-🤖⚙️Automation & Robotics Engineerin 
+🤖⚙️Automation & Robotics Engineer
 
 ---
 
